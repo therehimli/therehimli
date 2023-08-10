@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @therehimli
-- 📫 How to reach me Telegram:therehimli, WhatsApp:(+994)508797321.
+- 📫 How to reach me Telegram:therehimli, WhatsApp:+79068365723.
 
 
